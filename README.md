@@ -2,7 +2,7 @@
 
 I do develop and design cool stuff so do hit me up!
 
-Currently working on condensation.ai!
+Currently researching and working on some cool things!!
 
 <!---
 justrach/justrach is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
